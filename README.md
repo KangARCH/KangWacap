@@ -1,2 +1,0 @@
-# KangWacap
-B aja
